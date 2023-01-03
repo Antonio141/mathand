@@ -6,4 +6,4 @@ How does it work:
 2) In the screen will appear the equation that you have to solve 
 3) Solve the equation in your mind and make the number using the fingers of both your hands 
 4) Try to solve as many as you can
-5) Good luck!!!
+Good luck!!!
